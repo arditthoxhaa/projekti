@@ -1,0 +1,2 @@
+# projekti
+Faza e parë 
